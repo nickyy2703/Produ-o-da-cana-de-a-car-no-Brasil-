@@ -1,0 +1,2 @@
+A página apresenta uma visão geral sobre a produção de cana-de-açúcar no Brasil, destacando sua importância histórica, econômica e ambiental.O conteúdo é dividido em três partes principais: a história da cana no país desde o período colonial, a situação atual da produção com uso de tecnologia moderna e os principais estados produtores, e os impactos ambientais e sociais associados ao cultivo, incluindo desafios como desmatamento e uso de agrotóxicos. A proposta é informar de forma clara e objetiva sobre o papel central da cana-de-açúcar no desenvolvimento do Brasil.
+
